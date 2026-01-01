@@ -1,2 +1,0 @@
-# Juragan_web
-Yow
